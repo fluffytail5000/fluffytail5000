@@ -1,7 +1,7 @@
 # _**sumire/snowflake - she/her**_
 
 _bookworm . winter enthusiast .
-artist & writer . furry_
+artist & writer . dragon enthusiast_
 
 i have too many cats and am in too many fandoms
 
