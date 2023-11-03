@@ -9,7 +9,7 @@ currently trying to learn japanese.
 i know only a hundred words so far,
 but i'll keep learning.
 
-contact me on discord at Fluffytail5000#3097
+contact me on discord with the username fluffytail5000
 or email me at fluffytail5000@gmail.com
 
 don't try to contact me via khan academy,
